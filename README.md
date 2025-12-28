@@ -1,0 +1,64 @@
+# 幾田りら – Latata
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Latata...
+刻んでるFour on the floor
+合わせてTap my toes
+そのままFeel the flow
+あなたもVibe
+Just ride
+Slide to the left and the right
+Too shyでもIt's alright
+抱えてる
+Feeling blue
+全部手放して
+さぁ楽しむための
+How toは
+わたし次第で
+あなた次第だわ
+Let's start dancing
+Let's get crazy
+ラフなModeで
+ただ身を任せる
+Keep it moving
+Keep it grooving
+心のまま感じるの
+Just be free!
+Latata...
+刻む針Tick-tackと
+焦ってはチグハグな
+思考回路でMistake
+そうやって気付くMyself
+Little hintあっちこっちに
+Too lateなんてことはない
+取り戻そうとするほど
+足は絡まって
+つまずく日もある
+疲れ切った時は
+一緒にJoin in
+Dancingここで待ち合わせよう
+同じBeatで
+繋がるSoulmate
+互いにLinkするEmotion
+ただ自分らしくいよう
+この瞬間だけは
+何度だって
+Let's start dancing
+GoodなMusicに
+誘われるまま
+Keep it moving
+Keep it grooving
+心踊る方へ
+Just the way you are
+Let's start dancing
+Let's get crazy
+素直な自分を
+愛したいから
+Keep it moving
+Keep it grooving
+ありのままで踊るの
+'Cause we are free!
+Latata...
+```
